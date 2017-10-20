@@ -73,7 +73,7 @@ De missie van De Jonge Onderzoekers is: '[Het] exploiteren van een activiteitenc
 
 ## Sfeerimpressies
 
-Hier stonden Amaija, Noemie, Redmar en Richel op OrbitFest 2015: 
+Hier stonden Amaia, Noemie, Redmar en Richel op OrbitFest 2015: 
 
 ![Amaija, Noemie, Redmar en Richel op OrbitFest 2015 #1](Publiciteit/20151218OrbitFest.jpg)
 ![Amaija, Noemie, Redmar en Richel op OrbitFest 2015 #2](Publiciteit/20151218OrbitFest_2.jpg)
